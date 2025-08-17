@@ -1,2 +1,0 @@
-# randoms
-bisan nano la
